@@ -1,2 +1,2 @@
-# Redesigned-Discord-Octo-Robot
+# discor pussu sh!t
 saeffesfsae
